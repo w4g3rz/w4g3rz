@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi. I'm Wager.
+I guess I'm sort of a roblox developer now. I've done 3 commissions. I do other stuff too, but just as a hobby.
 <!--
 **wag3rz/wag3rz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
